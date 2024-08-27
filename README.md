@@ -1,0 +1,1 @@
+Diego R. Curiel, 3pm Lab Section
